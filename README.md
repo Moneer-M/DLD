@@ -1,4 +1,5 @@
 Dream a Little Dream
+
 This privacy policy governs your use of the software application Dream a Little Dream (“Application”) for mobile devices that was created by Moneer Marouf. The Application is a relaxing, colorful, and vibrant arcade - style game. 
  
 What information does the Application obtain and how is it used?
